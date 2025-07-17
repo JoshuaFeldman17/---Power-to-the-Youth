@@ -1,1 +1,1 @@
-# ---Power-to-the-Youth
+# Power to the Youth
